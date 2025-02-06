@@ -1,4 +1,4 @@
-# I'm [ABDULRAHMON RIDWON]  
+# I'm ABDULRAHMON RIDWON  
 
 **Data Analyst | Business Intelligence Enthusiast |  Data-Driven Problem Solver**  
 
